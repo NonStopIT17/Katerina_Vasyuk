@@ -1,2 +1,0 @@
-# Katerina_Vasyuk
-Resume
